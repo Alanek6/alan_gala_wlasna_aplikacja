@@ -1,0 +1,1 @@
+# alan_gala_wlasna_aplikacja
